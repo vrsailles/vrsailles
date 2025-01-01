@@ -1,10 +1,10 @@
-  CIEL⠀or⠀DANTE!⠀ ⚣⠀
+  CIEL⠀or⠀DANTE⠀ ⚣⠀
  
  ═╪⠀[ata](https://gardenia.atabook.org)⠀&⠀[rentry](https://rentry.co/angst)
 
  17. ⠀ enby ⠀boygirl⠀
-
- no dni except -15⠀
- otherwise i⠀block⠀freely⠀
  
-⠀dc is @/phlghting
+ please befriend me!!
+ i rlly need friends
+ so if we share ints
+ whisp2int ^_^
