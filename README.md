@@ -5,6 +5,9 @@
  17. ⠀ enby ⠀boygirl⠀
  
  please befriend me!!
+
  i rlly need friends
+
  so if we share ints
+
  whisp2int ^_^
