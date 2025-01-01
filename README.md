@@ -4,6 +4,8 @@
 
  17. ⠀ enby ⠀boygirl⠀
 
- bmf⠀i'm⠀rlly⠀kind⠀😿
+ no dni except -15⠀
+otherwise
+i⠀block⠀freely⠀😿
  
 ⠀dc is @/phlghting
