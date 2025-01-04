@@ -1,1 +1,1 @@
-  ciel⠀or⠀dante⠀ ⚣⠀ [rentry](https://rentry.co/angst)
+  ciel⠀or⠀dante⠀ ⚣⠀ [strawpage (send gimmicks they will be posted)](https://vrsllies.straw.page)
